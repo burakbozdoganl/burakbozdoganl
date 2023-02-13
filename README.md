@@ -1,5 +1,4 @@
 # HI DUDE 
-![](https://media3.giphy.com/media/oYQ9HRm5Mo7VXeMNVR/giphy.gif?cid=ecf05e472rz5y2rdeu3hkjyarfq8iwh2s36t1p7pwbz57053&rid=giphy.gif&ct=g)
 
 Burak from Turkey 
 
